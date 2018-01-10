@@ -4,10 +4,13 @@
 
 * CreatureS
 * Cloud云
+* Civilization
+* Culture
+* Cross absorption
 * Collect
 * Calculate【Gottfried LeibnizLet us calculate.】
 * Check
 * Consider
 * Cure
-* Cooperation
-* CommunicateSM
+* Cooperating
+* COMMUNIcateSM
