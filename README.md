@@ -10,6 +10,7 @@
 * Cross absorption
 * Collect
 * Calculate【Gottfried LeibnizLet us calculate.】
+* Clear up
 * Check
 * Consider
 * Cure
