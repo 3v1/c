@@ -1,9 +1,13 @@
 ### c
 * c是CreatureSCloud人云
   * http://3v1.github.io
- * CreatureS
+
+* CreatureS
 * Cloud云
-* cooperation
-* Communicate
-* Communism
+* Collect
 * Calculate【Gottfried LeibnizLet us calculate.】
+* Check
+* Consider
+* Cure
+* Cooperation
+* CommunicateSM
