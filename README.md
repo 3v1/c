@@ -1,8 +1,9 @@
 ### c
 * c是CreatureSCloud人云
-![病弱的CC](p/40ddd3f3effd2aa025079cf066fdc442.jpg)
+* 6cc是Sicks CreatureS Cloud病弱的人云
   * http://6cc.github.io
-* Sicks CreatureS Cloud
+* 理解成病弱的CC也没差
+![p](p/40ddd3f3effd2aa025079cf066fdc442.jpg)
 * CreatureS万物
 * Cloud云
 * Civilization
