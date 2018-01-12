@@ -7,7 +7,7 @@
 `轮椅女生利用同情心复仇`
 
 ### 章往考来
-https://baike.baidu.com/item/%E7%AB%A0%E5%BE%80%E8%80%83%E6%9D%A5/5597815
+https://baike.baidu.com/item/章往考来
 ### 系辞传下·第六章
 http://so.gushiwen.org/guwen/bookv_429.aspx
 * 彰往而察来，而微显阐幽
