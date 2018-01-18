@@ -1,7 +1,6 @@
 ### 我的投资组合
 - https://cn.investing.com/portfolio/?portfolioID=OD9jNzFjNWtmMT4wN2c
 - https://cn.investing.com/portfolio/?portfolioID=YmU2YjNhYjw1YmlnZzc
-- https://cn.investing.com/portfolio/?portfolioID=NjFmMmc1NWswZ2xiZzc
 - https://cn.investing.com/portfolio/?portfolioID=YGcxZWMxNWszZG1jYTE
 - https://cn.investing.com/portfolio/?portfolioID=NjFmMmc1NWswZ2xiZzc
 
