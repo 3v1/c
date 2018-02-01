@@ -8,20 +8,36 @@
 四，6：4|||||☶☵☳|☳☳☵|☶☵☳|☶☵☳|☳该☶|1一1解10
 三，8：6|3486|3556|1746|1786|☵☳☳|☳☳☳|☶☳☳|☵☵☳|☵该☶|三一一
 
+### 徐小明`龘龘囗`
+http://blog.sina.com.cn/s/articlelist_1300871220_0_1.html
+>和讯直播
+>http://zhibo.hexun.com/539/default.html
+
+### Wu2198`龘龘囗`
+http://blog.sina.com.cn/s/articlelist_1216826604_0_1.html
+>新浪财经直播
+>http://live.finance.sina.com.cn/bozhu/1216826604
+>>微博
+>>http://weibo.com/wu2198
+ 
+### 冯矿伟`龘龘囗`
+http://blog.sina.com.cn/s/articlelist_1504965870_0_1.html
+
+### 沪深港通资金流向
+http://data.eastmoney.com/hsgt/index.html
+
+### 比特币
+https://cn.investing.com/currencies/btc-usd
+>#### 火币
+>https://www.huobi.pro/zh-cn/btc_usdt/exchange/
+
 ### 新股申购与中签查询
 http://data.eastmoney.com/xg/xg/
+
+### 限售股解禁一览
+http://data.eastmoney.com/dxf/
+
 ### 我的投资组合
 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
-#### BTC/USD数据流图
-https://cn.investing.com/currencies/btc-usd-chart
-#### 沪深300
-https://cn.investing.com/indices/csi-300-futures-technical
-#### 深大宗
-https://cn.investing.com/indices/szse-commodities-producer-technical
-#### 新A50
-https://cn.investing.com/indices/china-a50-technical
-#### 比特
-https://cn.investing.com/currencies/btc-usd-technical
-##### 深成
-https://cn.investing.com/indices/szse-component-technical
+
 `Buffett's Shoulder（读作ButtPhat's Soldier）`
