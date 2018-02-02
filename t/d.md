@@ -6,3 +6,8 @@ https://item.taobao.com/item.htm?id=558340004760
 
 ### 贝勒府男装中国风金龙袍刺绣卫衣男秋冬外套连帽卫衣嘻哈宽松潮流`龘龘囗`
 https://item.taobao.com/item.htm?id=561520665690
+
+`作为背心颇有喜感，可惜了小哥挺帅`
+![](https://img.alicdn.com/imgextra/i2/1659648232/TB2H2jmrVXXXXcCXpXXXXXXXXXX_!!1659648232.jpg)
+![](https://img.alicdn.com/imgextra/i1/1659648232/TB2cCHxrVXXXXbaXpXXXXXXXXXX_!!1659648232.jpg)
+![](https://img.alicdn.com/imgextra/i1/1659648232/TB2NoHjrVXXXXczXpXXXXXXXXXX_!!1659648232.jpg)
