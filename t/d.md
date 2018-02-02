@@ -6,6 +6,9 @@ https://item.taobao.com/item.htm?id=558340004760
 ![](https://img.alicdn.com/bao/uploaded/i1/1659648232/TB2O_jGcx6I8KJjy0FgXXXXzVXa_!!1659648232.jpg_250x250.jpg)
 https://item.taobao.com/item.htm?id=558389556068
 
+### 贝勒府中国风男装春秋新款原创休闲飘带毛呢男士大裆裤腰带哈伦裤
+https://item.taobao.com/item.htm?id=521403748194
+
 ### 贝勒府男装中国风金龙袍刺绣卫衣男秋冬外套连帽卫衣嘻哈宽松潮流`龘囗囗`
 ![](https://img.alicdn.com/bao/uploaded/i1/1659648232/TB2lyDFi8DH8KJjy1zeXXXjepXa_!!1659648232.jpg_240x240.jpg)
 https://item.taobao.com/item.htm?id=561520665690
