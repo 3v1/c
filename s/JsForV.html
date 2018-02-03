@@ -1,0 +1,20 @@
+<script language = JavaScript>
+function password() {
+	var testV = 1;
+	var pass1 = prompt('PassWord:密码：', '');
+	while (testV < 3) {
+		if (!pass1) history.go(-1);
+		if (pass1 == "v") {
+			break;
+		}
+		testV += -1;
+		var pass1 = prompt('Wrong PassWord,Locked.密码错误！已锁定。');
+	}
+	if (pass1 != "password" & testV == 3) history.go(-1);
+	return " ";
+}
+document.write(password());
+</script>
+<img src="http://" width="" height="" />
+<img src="http://" width="" height="" />
+<img src="http://" width="" height="" />
