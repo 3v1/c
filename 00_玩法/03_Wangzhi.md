@@ -1,6 +1,6 @@
 CreatureSCloud人云
-https://github.com/6S9/c
 http://6s9.cc
+https://github.com/6S9/c
 
 备用Domain
 https://github.com/6cc/6cc.github.io
