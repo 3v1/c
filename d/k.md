@@ -4,7 +4,7 @@ http://www.gucn.com/Service_CurioStall_Show.asp?Id=4391746
 
 ### 疯狂的山羊，这些照片证明它们是世界上最好的登山者。
 https://baijiahao.baidu.com/s?id=1559865763225205
-![](https://t12.baidu.com/it/u=374945567,1473046664&fm=170&s=9FA7EC4C9EA1A25F0AE5E81D030090CB&w=500&h=316&img.JPEG)
+![](http://img.mp.sohu.com/upload/20170711/a7c69071b33340cfa623830bffa2caf9_th.png)
 
 ### A站猴子
 https://github.com/6S9/c/blob/master/p/c.md
