@@ -1,3 +1,7 @@
+### 2017特大码女装冬装胖mm羽绒棉衣 200斤胖妹妹加肥加大中长款棉服
+https://detail.tmall.com/item.htm?id=561547376412
+![](https://g-search3.alicdn.com/img/bao/uploaded/i4/i3/3243411012/TB1bLgya2jM8KJjSZFNXXbQjFXa_!!0-item_pic.jpg_180x180.jpg_.webp)
+
 ### 大码女装冬装棉衣胖mm短款加肥加大棉服胖妹妹外套胖人棉袄200斤
 https://item.taobao.com/item.htm?id=561529625630
 
