@@ -2,11 +2,9 @@
 https://detail.tmall.com/item.htm?id=561547376412
 ![](https://g-search3.alicdn.com/img/bao/uploaded/i4/i3/3243411012/TB1bLgya2jM8KJjSZFNXXbQjFXa_!!0-item_pic.jpg_180x180.jpg_.webp)
 
-### 大码女装冬装棉衣胖mm短款加肥加大棉服胖妹妹外套胖人棉袄200斤
-https://item.taobao.com/item.htm?id=561529625630
-
 ### 棉衣女胖m200斤加肥加大码羽绒棉服中长款显瘦大毛领加厚棉袄外套
 https://item.taobao.com/item.htm?id=557712521689
+![](https://img.alicdn.com/bao/uploaded/i4/823984202/TB2auQeX3oQMeJjy0FoXXcShVXa_!!823984202.jpg_240x240.jpg)
 ### `我给你贴的为啥不看`
 - - -
 ### 2016中国风秋冬男装仿皮草大衣保暖连帽立领风衣水貂长款加厚外套`龘龘囗`
