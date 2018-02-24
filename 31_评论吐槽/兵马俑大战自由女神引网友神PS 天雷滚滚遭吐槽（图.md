@@ -10,9 +10,6 @@ http://ent.163.com/14/0123/15/9J9KU68T00032DGD.html
 ![](http://img1.cache.netease.com/catchpic/F/FA/FA3801F376A22EDE115B875BE396681C.jpg)
 ![](http://img1.cache.netease.com/catchpic/4/43/433B45AB3BEFE61750968E371DB83CC5.jpg)
 ![](http://img1.cache.netease.com/catchpic/B/B1/B15F72E693DA1DBAF3870ADCF35FB564.jpg)
-![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1519443341985&di=7ca88e4105df99b1118f81203709aac6&imgtype=0&src=http%3A%2F%2Fupload.rzw.com.cn%2F2014%2F0123%2F1390438146837.jpg)
-![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1519443997014&di=0b31d679c0bff1c68da1dcc28ad08ba9&imgtype=0&src=http%3A%2F%2Fimg3.cache.netease.com%2Fphoto%2F0091%2F2014-01-22%2F600x450_9J706CVJ0HQO0091.jpg)
-![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1519443926437&di=36ad57687da9da283cda84a497f02d28&imgtype=0&src=http%3A%2F%2Fimage.tianjimedia.com%2FuploadImages%2F2014%2F023%2F0M152KF762UM_680x500.jpg)
 ### 中美将合拍"兵马俑侠" 网友：弱点是一敲就碎(图
 http://www.chinanews.com/yl/2014/01-22/5767472.shtml
 - 上海市政协委员、上影集团总裁任仲伦日前透露，中美两国的影视集团将合拍《兵马俑侠》，并称项目已进入了实质性阶段。
