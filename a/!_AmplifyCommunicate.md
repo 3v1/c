@@ -1,3 +1,6 @@
+###马太效应（Matthew Effect
+![](http://img1.cache.netease.com/catchpic/D/D1/D13F41A5DDCED7A13723F510589EB8CF.jpg)
+`甩锅马太，洋人也为尊者讳。`
 ### 人民网对话官微
 `帮你办实事`
 ![](http://afp.alicdn.com/afp-creative/creative/u115581350/44cd1c28d0c81b629470e1b405e06ab6.jpg)
