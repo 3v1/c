@@ -1,4 +1,4 @@
-`原名巴菲特的肩膀Buffett's Shoulder（读作ButtPhat's Soldier）`
+
 ### 徐小明`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1300871220_0_1.html
 >和讯直播
@@ -21,13 +21,18 @@ https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
 http://data.eastmoney.com/xg/xg/
 ### 限售股解禁一览
 http://data.eastmoney.com/dxf/
-## 模板一
+### 名家多空PK台
+http://www.10jqka.com.cn/
+`原名巴菲特的肩膀Buffett's Shoulder（读作ButtPhat's Soldier）`
+### K线训练营
+http://igame.10jqka.com.cn/kline/index
+### k5
 1. MA均线
 2. VOL-TDX
 3. Macd100x`定量结构`
 4. 精准顶底买卖jzddmm
 5. 趋势顶底QSDD
-## 模板二
+### 轨0
 1. 多空通道_ZGL`狄马克分时九转`
 2. VOL-TDX
 3. Macd100x`定量结构`
@@ -38,7 +43,7 @@ http://data.eastmoney.com/dxf/
 8. 逃顶王
 9. 庄家抬轿
 10. 实战综合szzh
-## 模板三
+### 浪压7
 1. 压力支撑
 2. VOL-TDX
 3. Macd100x`定量结构`
@@ -46,7 +51,3 @@ http://data.eastmoney.com/dxf/
 5. BbiBoll
 6. 波段王
 7. 神龙抄底123`冯？伟同款`
-### 名家多空PK台
-http://www.10jqka.com.cn/
-### K线训练营
-http://igame.10jqka.com.cn/kline/index###
