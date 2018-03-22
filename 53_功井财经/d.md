@@ -1,10 +1,10 @@
 ### 徐小明`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1300871220_0_1.html
->和讯直播http://zhibo.hexun.com/539/default.html
+>和讯直播 http://zhibo.hexun.com/539/default.html
 ### Wu2198`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1216826604_0_1.html
->新浪财经直播http://live.finance.sina.com.cn/bozhu/1216826604
->>微博http://weibo.com/wu2198
+>新浪财经直播 http://live.finance.sina.com.cn/bozhu/1216826604
+>>微博 http://weibo.com/wu2198
 ### 冯矿伟`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1504965870_0_1.html
 ### 沪深港通资金流向
@@ -13,7 +13,7 @@ http://data.eastmoney.com/hsgt/index.html
 https://cn.investing.com/currencies/btc-usd
 ### 我的投资组合
 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
-#### `原名巴菲特的肩膀Buffett's Shoulder（读作ButtPhat's Soldier）`
+- `原名巴菲特的肩膀Buffett's Shoulder（读作ButtPhat's Soldier）`
 ### 新股申购与中签查询
 http://data.eastmoney.com/xg/xg/
 ### 限售股解禁一览
