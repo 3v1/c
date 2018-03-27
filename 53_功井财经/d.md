@@ -31,7 +31,7 @@ http://igame.10jqka.com.cn/kline/index
 ## 轨0
 1. 多空通道_ZGL`狄马克分时九转`
 2. VOL-TDX
-3. Macd100x`定量结构`
+3. Macd100x增强`定量结构`
 4. Dkcol2多空能量柱
 5. 精准顶底买卖jzddmm
 6. 趋势顶底QSDD
@@ -42,8 +42,14 @@ http://igame.10jqka.com.cn/kline/index
 ## 浪压7
 1. 压力支撑
 2. VOL-TDX
-3. Macd100x`定量结构`
+3. Macd100x增强`定量结构`
 4. KDJ
 5. BbiBoll
 6. 波段王
 7. 神龙抄底123`冯？伟同款`
+## m5
+1. 多空通道_ZGL`狄马克分时九转`
+2. VOL-TDX
+3. Macd100x增强`定量结构`
+4. 资金博弈
+5. 资金博弈L2
