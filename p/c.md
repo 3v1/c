@@ -1,3 +1,8 @@
+## 喜感图
+![](https://gss0.baidu.com/-vo3dSag_xI4khGko9WTAnF6hhy/zhidao/wh%3D450%2C600/sign=78f866300e087bf47db95fedc7e37b1a/38dbb6fd5266d0166c49c7539b2bd40735fa357c.jpg)
+### 已经灭绝的动物，当年是怎么啪啪啪的？(图
+http://tech.ifeng.com/a/20180303/44894540_0.shtml
+![](http://p1.ifengimg.com/a/2018_09/d5d279c70f1b5f4_size52_w620_h372.jpeg)
 ### A站你好A站再见
 ![](http://www.iresearch.tv/wp-content/uploads/2017/07/acfun-e1479914122573.png)
 ![](https://gss0.bdstatic.com/-4o3dSag_xI4khGkpoWK1HF6hhy/baike/w%3D268/sign=213cae73193853438ccf8027ab13b01f/2e2eb9389b504fc2c174ed1aecdde71190ef6d81.jpg)
