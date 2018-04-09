@@ -13,7 +13,18 @@ http://data.eastmoney.com/hsgt/index.html
 https://cn.investing.com/currencies/btc-usd
 ### 我的投资组合
 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
-- `原名巴菲特的肩膀Buffett's Shoulder（读作ButtPhat's Soldier）`
+### 座右铭
+>技术层面信专家，多空灵感记日志。
+1. 【当日提示】前日行情可能惯性延续。小心冲高回落
+2. 【本周计划】整理微信消息，同步博客图片。等待底部提示，顶部再现止损。
+3. 【日常任务】以60分日线MACD扫描自选股，观察多重指标加持的效果。
+4. 【】留意人气指标、软件版本更新
+5. 【】留意南海、伊朗、沙特、俄罗斯、朝鲜半岛
+>>`巴菲特的肩膀写作Buffett's Shoulder（读作ButtPhat's Soldier）`
+### 趋势巡航（不要与趋势作对）`龘龘囗`
+http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
+### Anmin0001`龘囗囗`
+http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
 ### 新股申购与中签查询
 http://data.eastmoney.com/xg/xg/
 ### 限售股解禁一览
