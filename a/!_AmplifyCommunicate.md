@@ -2,8 +2,9 @@
 ![](http://img1.cache.netease.com/catchpic/D/D1/D13F41A5DDCED7A13723F510589EB8CF.jpg)
 `甩锅马太，洋人也为尊者讳。`
 ### 人民网对话官微
-`帮你办实事`
 ![](http://afp.alicdn.com/afp-creative/creative/u115581350/44cd1c28d0c81b629470e1b405e06ab6.jpg)
+`帮你办实事，宇文庶噱：键盘侠大人满脸堆笑。`
+![](http://pic2.dwnews.net/20180409/2e8368ec06c7addbe991e79d99342660_w.jpg)
 ### 据说，看过这组照片的人都会笑起来
 http://t.people.com.cn/people/176224464
 >`根据真人真事改编`
