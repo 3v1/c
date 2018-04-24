@@ -1,4 +1,10 @@
-###马太效应（Matthew Effect
+### 学习改变命运
+![](http://pic.qiantucdn.com/58pic/15/63/51/49r58PICNAq_1024.jpg)
+http://www.58pic.com/psd/15635149.html
+### 信长之野望·大志
+- 进者往生极乐，退者无间地狱。`恐怖分子洗脑口号`
+![](http://www.gamecity.ne.jp/taishi/images/kokoro/world_09_001.jpg)
+### 马太效应（Matthew Effect
 ![](http://img1.cache.netease.com/catchpic/D/D1/D13F41A5DDCED7A13723F510589EB8CF.jpg)
 `甩锅马太，洋人也为尊者讳。`
 ### 人民网对话官微
