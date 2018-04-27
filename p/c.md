@@ -1,5 +1,8 @@
 ## 喜感图
-![](https://gss0.baidu.com/-vo3dSag_xI4khGko9WTAnF6hhy/zhidao/wh%3D450%2C600/sign=78f866300e087bf47db95fedc7e37b1a/38dbb6fd5266d0166c49c7539b2bd40735fa357c.jpg)
+### 看脸时代`快醒过来啊`
+![](https://wx2.sinaimg.cn/mw1024/6c9ae9ebgy1fq37b3b55wj20yi16dtf1.jpg)
+### 维他狗`清明踏青，挖野菜`
+![](https://pic.wenwo.com/fimg/76465119972.jpg)
 ### 已经灭绝的动物，当年是怎么啪啪啪的？(图
 http://tech.ifeng.com/a/20180303/44894540_0.shtml
 ![](http://p1.ifengimg.com/a/2018_09/d5d279c70f1b5f4_size52_w620_h372.jpeg)
