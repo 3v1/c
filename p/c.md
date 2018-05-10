@@ -1,4 +1,7 @@
 ## 喜感图
+## 喜感图
+### 老板被驴踢了
+![](https://gd4.alicdn.com/imgextra/i4/873633655/TB203WcrVXXXXa7XpXXXXXXXXXX_!!873633655.jpg)
 ### 看脸时代`快醒过来啊`
 ![](https://wx2.sinaimg.cn/mw1024/6c9ae9ebgy1fq37b3b55wj20yi16dtf1.jpg)
 ### 维他狗`清明踏青，挖野菜`
@@ -15,3 +18,5 @@ http://tech.ifeng.com/a/20180303/44894540_0.shtml
 ![](http://hiphotos.baidu.com/lx026119/pic/item/0bc065a7d933c895a812eae3d11373f083020019.jpg)
 #### 唐纳德表情
 ![](http://pic9.dwnews.net/20180406/20a5793e37bf22a1a5a789cd6d6bd2ec_w.jpg)
+#### 港媒：？？民主动弃权 ？国失去100多万平方公里？土
+![](http://pic8.dwnews.net/20180404/af3d7d84d9ec5d8d9bc022e80fec6ca6_w.jpg)

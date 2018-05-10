@@ -1,3 +1,8 @@
+### 屁民翘首盼王师
+![](http://image.xcar.com.cn/attachments/a/day_100921/20100921_d3e265f9b1983651d588AXByF80Ila9A.jpg-app)
+https://a.xcar.com.cn/bbs/thread-13109868-0.html
+陆游：遗民泪尽胡尘里，南望王师又一年。
+![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1525774822235&di=964395739709917c821947fcb2cdd540&imgtype=0&src=http%3A%2F%2Fimgsrc.baidu.com%2Fforum%2Fw%253D580%2Fsign%3Dabcfbd01a51ea8d38a22740ca70b30cf%2Fa89e512762d0f70309ba9f660bfa513d2797c589.jpg)
 ### 学习改变命运
 ![](http://pic.qiantucdn.com/58pic/15/63/51/49r58PICNAq_1024.jpg)
 http://www.58pic.com/psd/15635149.html
