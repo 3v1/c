@@ -1,5 +1,8 @@
+### 知更鸟（学名：Erithacus rubecula
+![](https://upload.wikimedia.org/wikipedia/commons/d/d0/European_robin_%28Erithacus_rubecula%29_juvenile.jpg)
 ## 喜感图
-## 喜感图
+### After Consulting With My Generals与我的将军们协商之后
+![](https://3hh51e83bipewktf28g5p1pe-wpengine.netdna-ssl.com/wp-content/uploads/2017/07/7893447_web1_170729-SWR-CartoonSatMED-1200x913.jpg)
 ### 老板被驴踢了
 ![](https://gd4.alicdn.com/imgextra/i4/873633655/TB203WcrVXXXXa7XpXXXXXXXXXX_!!873633655.jpg)
 ### 看脸时代`快醒过来啊`
