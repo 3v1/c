@@ -6,6 +6,8 @@ http://www.backchina.com
 https://www.voachinese.com/
 ### 自由亚洲电台
 https://www.rfa.org/mandarin/
+### 俄罗斯卫星通讯社
+http://sputniknews.cn/
 ### 法广
 http://cn.rfi.fr/
 #### 博讯
