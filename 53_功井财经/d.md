@@ -22,9 +22,9 @@ https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
 5. 【】留意南海、伊朗、沙特、俄罗斯、朝鲜半岛
 - `巴菲特的肩膀写作Buffett's Shoulder（读作ButtPhat's Soldier）`
 ### 财经报社`龘囗囗`
-http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
-### 趋势巡航（不要与趋势作对）`龘龘囗`
 http://www.fx168.com/
+### 趋势巡航（不要与趋势作对）`龘龘囗`
+http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
 ### Anmin0001`龘囗囗`
 http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
 ### 新股申购与中签查询
