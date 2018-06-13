@@ -13,7 +13,7 @@ http://data.eastmoney.com/hsgt/index.html
 https://cn.investing.com/currencies/btc-usd
 ### 我的投资组合
 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
-### 座右铭
+### 座右铭：贸易战-1，引资-1，氛围-1，反腐-1，大马-1，南海-1，社保-1，扶贫-1，台湾-1，援建-1。贪婪+10，护盘-1.
 0. #### 技术层面信专家，多空灵感记日志。
 1. 【当日提示】前日行情可能惯性延续。小心冲高回落
 2. 【本周计划】整理微信消息，同步博客图片。等待底部提示，顶部再现止损。
