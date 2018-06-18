@@ -1,6 +1,6 @@
 ### Art of and about the Trump era paints a scary portrait of our fears
 https://www.resetera.com/threads/art-of-and-about-the-trump-era-paints-a-scary-portrait-of-our-fears.32980/
-![](https://img.wennermedia.com/760-width/trump-failure-with-election-tiabbi-9c70ec25-6cc4-4eb8-bc9e-d6e85c0260b7.jpg)
+>![](https://img.wennermedia.com/760-width/trump-failure-with-election-tiabbi-9c70ec25-6cc4-4eb8-bc9e-d6e85c0260b7.jpg)
 ![](https://img.wennermedia.com/article-leads-horizontal-800/trump-the-destroyer-tiabbi-cover-story-rolling-stone-2-34b63f57-7c0a-4f80-9fd2-ce348a9ded97.jpg)
 ![](https://img.wennermedia.com/760-width/trump-tiabbi-the-end-of-facts-1db4840d-cc71-4797-9bc5-1dce4d4744df.jpg)
 ![](https://img.wennermedia.com/760-width/rs-trump-charlottesville-300dpi-394f3984-b1f0-4159-8efa-c60548b74133.jpg)
@@ -44,7 +44,7 @@ https://www.resetera.com/threads/art-of-and-about-the-trump-era-paints-a-scary-p
 ---
 ### With an unstable Trump and Kim Jong-un, can China stop tensions erupting over North Korea?
 http://www.scmp.com/comment/insight-opinion/article/2081186/unstable-trump-and-kim-jong-un-can-china-stop-tensions
-![](https://cdn4.i-scmp.com/sites/default/files/styles/980x551/public/images/methode/2017/03/23/cd20e56a-0fab-11e7-9af0-a8525e4e6af4_image_hires.jpg)
+>![](https://cdn4.i-scmp.com/sites/default/files/styles/980x551/public/images/methode/2017/03/23/cd20e56a-0fab-11e7-9af0-a8525e4e6af4_image_hires.jpg)
 ---
 ### @sirmitchell（Mike Mitchell）
 https://twitter.com/sirmitchell/status/862179399902384128/photo/1
