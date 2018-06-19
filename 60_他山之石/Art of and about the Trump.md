@@ -1,3 +1,8 @@
+### 美国又打出2000亿关税牌，中方这300字声明暗藏玄机！
+http://news.sina.com.cn/o/2018-06-19/doc-iheauxvz4214706.shtml
+![](http://n.sinaimg.cn/translate/167/w600h367/20180619/7bhZ-heauxvz4195446.jpg)
+![](http://n.sinaimg.cn/translate/600/w600h800/20180619/_3nf-heauxvz4195479.jpg)
+---
 ### Art of and about the Trump era paints a scary portrait of our fears
 https://www.resetera.com/threads/art-of-and-about-the-trump-era-paints-a-scary-portrait-of-our-fears.32980/
 >![](https://img.wennermedia.com/760-width/trump-failure-with-election-tiabbi-9c70ec25-6cc4-4eb8-bc9e-d6e85c0260b7.jpg)
