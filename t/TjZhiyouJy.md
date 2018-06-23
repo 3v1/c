@@ -1,7 +1,7 @@
 ### 网站后台->微信->公众号管理
 http://www.tjzhiyoujy.com/index.php?s=/admin/wchat/config
-#### 配置说明
 ```
+配置说明：
 http://www.tjzhiyoujy.com/index.php?s=/wap/wchat/relateWeixin
 TOKEN
 请将以上URL及Token填到微信公众平台中，以完成绑定。
@@ -14,10 +14,10 @@ TOKEN
 ```
 ### NiuShop用户手册->公众号管理
 http://www.niushop.com.cn/document.html?class_id=20&dir_id=74&id=75
-#### NiuShop问题库->微信公众号配置的注意事项检测
-http://www.niushop.com.cn/document.html?class_id=157&dir_id=158&id=169
+### NiuShop问题库->微信公众号配置的注意事项检测
+>http://www.niushop.com.cn/document.html?class_id=157&dir_id=158&id=169
 ---
 ### 模板后台
 http://www.tjzhiyoujy.com/index.php?s=/admin/login
-#### 网站设置
+### 网站设置
 http://www.tjzhiyoujy.com/index.php?s=/admin/config/webconfig
