@@ -1,3 +1,5 @@
+### 终于知道小米Max2手机照片恢复方法, 简直大快人心
+https://www.sohu.com/a/153262048_730211
 ### Download Micky Xiaomi Account Unlock Tools 2018
 https://www.mobilerdx.com/2018/01/download-micky-xiaomi-account-unlock-tools-2018.html
 ### How to Unlock Mi Account tool remove/bypass Xiaomi Mi account lock

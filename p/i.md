@@ -1,4 +1,6 @@
 ## i是Illustrate的i
+### 琴義弓介
+![](https://pbs.twimg.com/media/DfVDN8YV4AA04AJ.jpg)
 ### 吾皇
 ![](https://ww1.sinaimg.cn/large/c265737ajw1f0jlhf3f29j21bj0qojx7.jpg)
 ![](https://ww3.sinaimg.cn/large/c265737ajw1f0jok8h5rkj20m80bbgn9.jpg)

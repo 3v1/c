@@ -1,11 +1,17 @@
+### 出入平安
+https://www.reuters.com/article/us-china-congress-xi/xis-power-on-parade-as-china-party-congress-looms-idUSKCN1BC4SY
+![](https://s3.reutersmedia.net/resources/r/?m=02&d=20170901&t=2&i=1199582527&r=LYNXNPED8035J&w=940)
 ### 海安有个“朱？基
 http://www.hacsyx.com/product/?type=detail&id=19
 ![](http://www.hacsyx.com/product/common/upload/2015/8/25/95235PK.jpg)
 ### 卯秋民
 ![](http://image.baidu.com/search/down?tn=download&word=download&ie=utf8&fr=detail&url=http%3A%2F%2Fh.hiphotos.baidu.com%2Fbaike%2Fpic%2Fitem%2Fb3b7d0a20cf431ad24df0fe14136acaf2fdd98dd.jpg&thumburl=http%3A%2F%2Fh.hiphotos.baidu.com%2Fbaike%2Fpic%2Fitem%2Fb3b7d0a20cf431ad24df0fe14136acaf2fdd98dd.jpg)
+### BigBrother
+![](http://scd.cn.rfi.fr/sites/chinese.filesrfi/imagecache/rfi_16x9_1024_578/sites/images.rfi.fr/files/aef_image/2018-02-23t113029z_1882956241_rc1a75ecff20_rtrmadp_3_china-politics-corruption.jpg)
 ### 知更鸟（学名：Erithacus rubecula
 ![](https://upload.wikimedia.org/wikipedia/commons/d/d0/European_robin_%28Erithacus_rubecula%29_juvenile.jpg)
 ## 喜感图
+![](https://pbs.twimg.com/media/DgVTN1CV4AEjhjm.jpg)
 ### After Consulting With My Generals与我的将军们协商之后
 ![](https://3hh51e83bipewktf28g5p1pe-wpengine.netdna-ssl.com/wp-content/uploads/2017/07/7893447_web1_170729-SWR-CartoonSatMED-1200x913.jpg)
 ### 老板被驴踢了
