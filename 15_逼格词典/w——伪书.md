@@ -1,5 +1,7 @@
 ## 伪书
 https://zh.wikipedia.org/wiki/Category:偽書
+### 庄子
+- 始生之物，其形必丑。`无从考据`
 ### 田中奏折
 https://zh.wikipedia.org/wiki/田中奏摺
 >蔡智堪声称发现并秘密抄录了“东方会议”的纪要文件，即是一封日本首相田中义一向天皇献呈为数约四万字的秘密奏折。

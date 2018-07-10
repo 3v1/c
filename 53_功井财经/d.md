@@ -11,9 +11,16 @@ http://blog.sina.com.cn/s/articlelist_1504965870_0_1.html
 http://data.eastmoney.com/hsgt/index.html
 ### 比特币
 https://cn.investing.com/currencies/btc-usd
+### A50
+https://cn.investing.com/indices/china-a50
 ### 我的投资组合
 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
-### 座右铭：贸易战-1，引资-1，氛围-1，反腐-1，大马-1，南海-1，社保-1，扶贫-1，台湾-1，援建-1。贪婪+10，护盘-1.
+### 趋势巡航（不要与趋势作对）`龘龘囗`
+http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
+### Anmin0001`龘囗囗`
+http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
+## D是DashBoard
+**座右铭：贸易战-1，引资-1，氛围-1，反腐-1，大马-1，南海-1，社保-1，扶贫-1，台湾-1，援建-1。贪婪+10，护盘-1.**
 0. #### 技术层面信专家，多空灵感记日志。
 1. 【当日提示】前日行情可能惯性延续。小心冲高回落
 2. 【本周计划】整理微信消息，同步博客图片。等待底部提示，顶部再现止损。
@@ -23,10 +30,6 @@ https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
 - `巴菲特的肩膀写作Buffett's Shoulder（读作ButtPhat's Soldier）`
 ### 财经报社`龘囗囗`
 http://www.fx168.com/
-### 趋势巡航（不要与趋势作对）`龘龘囗`
-http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
-### Anmin0001`龘囗囗`
-http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
 ### 新股申购与中签查询
 http://data.eastmoney.com/xg/xg/
 ### 限售股解禁一览

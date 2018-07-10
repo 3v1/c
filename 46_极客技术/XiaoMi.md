@@ -1,5 +1,9 @@
-### 终于知道小米Max2手机照片恢复方法, 简直大快人心
-https://www.sohu.com/a/153262048_730211
+### 搞机故事] 最新版本刷机包（部分机型
+http://www.miui.com/thread-15786319-1-1.html
+### Changelog - Global] MIUI 9 Global Beta ROM 7.8.24 Released: Full Changelog and Download Links!
+http://en.miui.com/thread-769442-1-1.html
+### XIAOMI MI
+https://vk.com/topic-119736533_36237710?post=204
 ### Download Micky Xiaomi Account Unlock Tools 2018
 https://www.mobilerdx.com/2018/01/download-micky-xiaomi-account-unlock-tools-2018.html
 ### How to Unlock Mi Account tool remove/bypass Xiaomi Mi account lock
