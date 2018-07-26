@@ -7,18 +7,16 @@ http://blog.sina.com.cn/s/articlelist_1216826604_0_1.html
 >>微博 http://weibo.com/wu2198
 ### 冯矿伟`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1504965870_0_1.html
-### 沪深港通资金流向
-http://data.eastmoney.com/hsgt/index.html
-### 比特币
-https://cn.investing.com/currencies/btc-usd
-### A50
-https://cn.investing.com/indices/china-a50
-### 我的投资组合
-https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
 ### 趋势巡航（不要与趋势作对）`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
-### Anmin0001`龘囗囗`
+#### Anmin0001`龘囗囗`
 http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
+### 沪深港通资金流向
+http://data.eastmoney.com/hsgt/index.html
+>比特币 https://cn.investing.com/currencies/btc-usd
+>>A50 https://cn.investing.com/indices/china-a50
+>>>我的投资组合 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
+---
 ## D是DashBoard
 **座右铭：贸易战-1，引资-1，氛围-1，反腐-1，大马-1，南海-1，社保-1，扶贫-1，台湾-1，援建-1。贪婪+10，护盘-1.**
 0. #### 技术层面信专家，多空灵感记日志。

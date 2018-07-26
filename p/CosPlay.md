@@ -1,3 +1,10 @@
+### ACGGirl大作战北京站周日决选 网红扎堆！
+http://www.sohu.com/picture/242075794
+- 桃宝，主持人，演员，声优，综艺通告艺人，相声第二班主持
+![](https://inews.gtimg.com/newsapp_bt/0/308028258/641?tp=webp)
+![](http://image.yy.com/yywebalbumbs2bucket/0a384f98b7984e91ae0b03a8635cd10d_1435905155265.jpg)
+![](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1532524470665&di=78e538e4c58c3633bfcc513f7c82676f&imgtype=0&src=http%3A%2F%2Fdownhdlogo.yy.com%2Fhdlogo%2F640640%2F640%2F640%2F00%2F0001008285%2FT1.3ATBThy1RCvBVdK.png%3F20160805172643)
+---
 ### 什么？泳装秀真的比车展女模更好看？
 http://www.sohu.com/picture/242075794
 ![](http://5b0988e595225.cdn.sohucs.com/images/20180719/a9908e165a1940d1aaf9f5f1f7cea47a.jpeg)

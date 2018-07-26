@@ -1,23 +1,18 @@
+### 新闻动态
+https://zh.wikipedia.org/wiki/Portal:新聞動態
 ### 多维
 http://www.dwnews.com
-#### 倍可亲
-http://www.backchina.com
-### 美国之音
-https://www.voachinese.com/
-### 自由亚洲电台
-https://www.rfa.org/mandarin/
 ### 路透社
-https://cn.reuters.com/
-### 俄罗斯卫星通讯社
-http://sputniknews.cn/
+https://cn.reuters.com
 ### 法广
 http://cn.rfi.fr/
-#### 博讯
-https://www.boxun.com
-### 万维读者
-http://creaders.net
-#### 新世纪同款
-http://2newcenturynet.blogspot.com
+#### 博讯 https://www.boxun.com
+#### 美国之音 https://www.voachinese.com
+#### 自由亚洲电台 https://www.rfa.org/mandarin
+#### 俄罗斯卫星通讯社 http://sputniknews.cn
+#### 万维读者 http://creaders.net
+#### 倍可亲 http://www.backchina.com
+#### 新世纪同款 http://2newcenturynet.blogspot.com
 >#### ~~新世纪~~
 >~~http://www.newcentury.net~~
 ### モービル
