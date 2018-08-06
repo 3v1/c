@@ -1,4 +1,7 @@
 ## a是AmplifyCommunicate的a
+### AcFan娘和猴子404 Not Found未找到访问页面
+http://www.acfun.cn/404.html
+![](http://cdn.aixifan.com/dotnet/20130418/project/404/style/image/bg.png)
 ---
 ### 视知tv
 >为你解释世界。

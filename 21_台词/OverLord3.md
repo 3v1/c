@@ -17,3 +17,10 @@ https://www.bilibili.com/bangumi/play/ep232534
 - 1155
 - 无论谁来当村长，都会在各种事上失败。1920
 - 2120
+---
+### 4话 东方巨人、西方魔蛇
+https://www.bilibili.com/bangumi/play/ep232535
+- 0410
+- 0916
+- 1235
+- 1425
