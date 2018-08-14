@@ -6,6 +6,7 @@ http://www.dwnews.com
 https://cn.reuters.com
 ### 法广
 http://cn.rfi.fr/
+#### WallTyper http://www.walltyper.com/
 #### 博讯 https://www.boxun.com
 #### 美国之音 https://www.voachinese.com
 #### 自由亚洲电台 https://www.rfa.org/mandarin

@@ -1,14 +1,17 @@
 ### 徐小明`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1300871220_0_1.html
->和讯直播 http://zhibo.hexun.com/539/default.html
+>http://live.finance.sina.com.cn/bozhu/1300871220
+>>和讯直播 http://zhibo.hexun.com/539/default.html
 ### Wu2198`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1216826604_0_1.html
 >新浪财经直播 http://live.finance.sina.com.cn/bozhu/1216826604
 >>微博 http://weibo.com/wu2198
 ### 冯矿伟`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1504965870_0_1.html
+>http://live.finance.sina.com.cn/bozhu/1504965870
 ### 趋势巡航（不要与趋势作对）`龘龘囗`
 http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
+>http://live.finance.sina.com.cn/bozhu/1658605145/48069
 #### Anmin0001`龘囗囗`
 http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
 ### 沪深港通资金流向
