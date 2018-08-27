@@ -1,3 +1,9 @@
+#### 愿你们将来拥有锦绣年华还好理解，=_=|||愿你们来世是几个意思？
+![](https://wx2.sinaimg.cn/mw690/0070eHi0ly1fmg1svc3p7j30j60i0dhv.jpg)
+---
+#### 被不可抗力蹂躏的@王尼玛
+![](https://wx1.sinaimg.cn/mw690/0070eHi0ly1fmduilopo5j31jk1jkaom.jpg)
+---
 #### 华人美甲店员工暴打黑人”视频热传 引发抗议
 - 你不能拿了我的钞票还不尊重我。
 ![](http://5b0988e595225.cdn.sohucs.com/images/20180809/d2c6bc34aec44e7ab346082d11ffb059.jpeg)
