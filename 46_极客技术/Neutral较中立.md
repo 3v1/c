@@ -1,15 +1,11 @@
-### 新闻动态
-https://zh.wikipedia.org/wiki/Portal:新聞動態
-### 多维
-http://www.dwnews.com
-### 路透社
-https://cn.reuters.com
-### 法广
-http://cn.rfi.fr/
-#### WallTyper http://www.walltyper.com/
+### 新闻动态 https://zh.wikipedia.org/wiki/Portal:新聞動態
+### 多维 http://www.dwnews.com
+### 路透社 https://cn.reuters.com
+### 法广 http://cn.rfi.fr/
 #### 博讯 https://www.boxun.com
 #### 美国之音 https://www.voachinese.com
 #### 自由亚洲电台 https://www.rfa.org/mandarin
+#### WallTyper http://www.walltyper.com/
 #### 俄罗斯卫星通讯社 http://sputniknews.cn
 #### 万维读者 http://creaders.net
 #### 倍可亲 http://www.backchina.com
