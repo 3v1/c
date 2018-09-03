@@ -6,14 +6,14 @@
 >>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1504965870
 >#### 趋势巡航http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
 >>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1658605145/48069
->>#### Anmin0001`龘囗囗`http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
-### 期指持仓` `http://data.eastmoney.com/IF/Data/Contract.html
+>#### Anmin0001`龘囗囗`http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
+### 期指持仓 http://data.eastmoney.com/IF/Data/Contract.html
 >沪深港通资金流向 http://data.eastmoney.com/hsgt/index.html
 ### 比特币 https://cn.investing.com/currencies/btc-usd
 >A50 https://cn.investing.com/indices/china-a50
 >>我的投资组合 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
 ---
-- Wu2198微博 http://weibo.com/wu2198
+>Wu2198微博 http://weibo.com/wu2198
 ---
 ## D是DashBoard
 **座右铭：贸易战-1，引资-1，氛围-1，反腐-1，大马-1，南海-1，社保-1，扶贫-1，台湾-1，援建-1。贪婪+10，护盘-1.**
