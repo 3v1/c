@@ -5,15 +5,24 @@
 >#### 冯矿伟 http://blog.sina.com.cn/s/articlelist_1504965870_0_1.html
 >>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1504965870
 >#### 趋势巡航 http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
->>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1658605145/48069
+>>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1658605145
 >#### Anmin0001`龘囗囗`http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
 ### 期指持仓 http://data.eastmoney.com/IF/Data/Contract.html
 >沪深港通资金流向 http://data.eastmoney.com/hsgt/index.html
+>>融资融券 http://data.eastmoney.com/rzrq/
 ### 比特币 https://cn.investing.com/currencies/btc-usd
 >A50 https://cn.investing.com/indices/china-a50
 >>我的投资组合 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
 ---
 >Wu2198微博 http://weibo.com/wu2198
+### 新股申购与中签查询
+http://data.eastmoney.com/xg/xg/
+### 限售股解禁一览
+http://data.eastmoney.com/dxf/
+### 名家多空PK台
+http://www.10jqka.com.cn/
+### K线训练营
+http://igame.10jqka.com.cn/kline/index
 ---
 ## D是DashBoard
 **座右铭：贸易战-1，引资-1，氛围-1，反腐-1，大马-1，南海-1，社保-1，扶贫-1，台湾-1，援建-1。贪婪+10，护盘-1.**
@@ -26,14 +35,6 @@
 - `巴菲特的肩膀写作Buffett's Shoulder（读作ButtPhat's Soldier）`
 ### 财经报社`龘囗囗`
 http://www.fx168.com/
-### 新股申购与中签查询
-http://data.eastmoney.com/xg/xg/
-### 限售股解禁一览
-http://data.eastmoney.com/dxf/
-### 名家多空PK台
-http://www.10jqka.com.cn/
-### K线训练营
-http://igame.10jqka.com.cn/kline/index
 ## k5
 1. MA均线
 2. VOL-TDX
