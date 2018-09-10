@@ -33,3 +33,30 @@ https://www.bilibili.com/bangumi/play/ep232539
 - 1555
 - 1830
 - 2145，2150
+---
+### 9话 唇枪舌战
+https://www.bilibili.com/bangumi/play/ep232540
+- 0255
+- 0310
+- 0315
+- 0330
+- 0342
+- 0517
+- 0920
+- 1105
+- 1215
+- 1330
+- 1430
+- 1930
+- 1940
+- 小迪脑补了鲜血帝德所有脑补。
+- 2055
+- 2245
+- 2330
+---
+![](https://i0.hdslb.com/bfs/archive/961dd72dd9a736682268e917c92e56c52c24daa6.png)
+### OVERLORD Ⅲ 不死者之王 第三季删减内容 #1【他她TV】聊动漫
+https://www.bilibili.com/video/av30047374
+### overlord出剧场版了】夏提雅对战白金龙王？正片看不到的动画片段
+https://www.bilibili.com/video/av22399296/
+---
