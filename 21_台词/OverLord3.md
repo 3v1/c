@@ -54,6 +54,12 @@ https://www.bilibili.com/bangumi/play/ep232540
 - 2245
 - 2330
 ---
+### 10话 战争准备
+https://www.bilibili.com/bangumi/play/ep232541
+- 0220
+- 0410
+- 0755
+---
 ![](https://i0.hdslb.com/bfs/archive/961dd72dd9a736682268e917c92e56c52c24daa6.png)
 ### OVERLORD Ⅲ 不死者之王 第三季删减内容 #1【他她TV】聊动漫
 https://www.bilibili.com/video/av30047374

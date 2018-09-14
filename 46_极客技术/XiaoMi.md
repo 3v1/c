@@ -1,3 +1,5 @@
+### OPPO R9 R9S plus解锁 密码忘记怎么办 指纹屏幕
+https://jingyan.baidu.com/article/3f16e003007d502590c10346.html
 ### 搞机故事] 最新版本刷机包（部分机型
 http://www.miui.com/thread-15786319-1-1.html
 ### Changelog - Global] MIUI 9 Global Beta ROM 7.8.24 Released: Full Changelog and Download Links!
