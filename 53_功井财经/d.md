@@ -6,17 +6,16 @@
 >>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1504965870
 >#### 趋势巡航 http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
 >>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1658605145
->#### Anmin0001`龘囗囗`http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
-### 期指持仓 http://data.eastmoney.com/IF/Data/Contract.html
+### 新股申购与中签查询 http://data.eastmoney.com/xg/xg
 >沪深港通资金流向 http://data.eastmoney.com/hsgt/index.html
->>融资融券 http://data.eastmoney.com/rzrq/
-### 比特币 https://cn.investing.com/currencies/btc-usd
->A50 https://cn.investing.com/indices/china-a50
+>>期指持仓 http://data.eastmoney.com/IF/Data/Contract.html
+>>>融资融券 http://data.eastmoney.com/rzrq/
+### A50 https://cn.investing.com/indices/china-a50
+>比特币 https://cn.investing.com/currencies/btc-usd
 >>我的投资组合 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA
----
+##### Anmin0001`龘囗囗`http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html
 >Wu2198微博 http://weibo.com/wu2198
-### 新股申购与中签查询
-http://data.eastmoney.com/xg/xg/
+---
 ### 限售股解禁一览
 http://data.eastmoney.com/dxf/
 ### 名家多空PK台

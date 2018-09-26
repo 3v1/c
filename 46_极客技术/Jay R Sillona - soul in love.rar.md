@@ -1,6 +1,13 @@
 ### Jay R Sillona - soul in love.rar
 - nick27235：rebirth
-- Jay R Sillona - 10.Two Occasions.flac
+![](https://ss0.bdstatic.com/7Ls0a8Sm1A5BphGlnYG/sys/portrait/item/4a2a1f00.jpg)
+![](https://c-ash.smule.com/sf/z3/account/picture/74/bb/b2407fde-62e5-4e44-9804-85836e955962_256.jpg)
+### nick27235
+http://m.weiyoou.com/share/3480170.html
+- jim croce–the.legend.of.jim.croce.1985.flac.rar
+---
+### R&B】Jay-R - Soul in Love (2008
+http://tieba.baidu.com/p/1668121762
 front.jpg
 Jay R Sillona - 01.One Hundred Ways.flac
 Jay R Sillona - 02.Just to See Her.flac
@@ -22,4 +29,4 @@ Jay R Sillona - 17.You Are My Lady.flac
 Jay R Sillona - 18.Tattooed On My Mind.flac
 Jay R Sillona - soul in love.cue
 Jay R Sillona - soul in love.log
-
+---

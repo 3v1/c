@@ -7,13 +7,14 @@
 #### 自由亚洲电台 https://www.rfa.org/mandarin
 #### 万维读者 http://creaders.net
 #### 倍可亲 http://www.backchina.com
-#### 1+新闻 https://www.oneplusnews.com
-#### WallTyper http://www.walltyper.com
 #### 新世纪同款 http://2newcenturynet.blogspot.com
->#### ~~新世纪 http://www.newcentury.net~~
+#### Twitter https://twitter.com/
+##### 1+新闻 https://www.oneplusnews.com
+##### WallTyper http://www.walltyper.com
 ---
 ### モービル
 https://ja.m.wikipedia.org/wiki/メインページ
 ### 日本語
 https://ja.wikipedia.org/wiki/メインページ
-#### 俄罗斯卫星通讯社 http://sputniknews.cn
+##### 俄罗斯卫星通讯社 http://sputniknews.cn
+##### ~~新世纪 http://www.newcentury.net~~

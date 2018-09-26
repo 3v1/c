@@ -1,3 +1,5 @@
+### 吴秀波
+![](http://himg2.huanqiu.com/attachment2010/2015/1230/10/01/20151230100130514.jpg)
 ### ACGGirl大作战北京站周日决选 网红扎堆！
 http://www.sohu.com/picture/242075794
 - 桃宝，主持人，演员，声优，综艺通告艺人，相声第二班主持
