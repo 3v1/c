@@ -60,6 +60,11 @@ https://www.bilibili.com/bangumi/play/ep232541
 - 0410
 - 0755
 ---
+### 13话 PVP
+https://www.bilibili.com/bangumi/play/ep232544
+- 可能顺从强者是弱者的生存本能吧。1950
+- 2115，2120
+---
 ![](https://i0.hdslb.com/bfs/archive/961dd72dd9a736682268e917c92e56c52c24daa6.png)
 ### OVERLORD Ⅲ 不死者之王 第三季删减内容 #1【他她TV】聊动漫
 https://www.bilibili.com/video/av30047374
