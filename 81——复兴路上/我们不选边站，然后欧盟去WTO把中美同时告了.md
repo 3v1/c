@@ -1,3 +1,5 @@
+### 新华社评论员：“强制技术转让说”站不住脚
+http://www.xinhuanet.com/politics/2018-10/15/c_1123562687.htm
 ### 商务部：美方指责中方窃取知识产权是严重歪曲历史和现实
 http://news.cri.cn/20180621/c16a42f0-bf5d-556f-fea6-4b6cdfe4b57f.html
 ### 我们不选边站"，然后欧盟去WTO把中美同时告了
