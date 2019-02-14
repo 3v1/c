@@ -7,9 +7,9 @@
 >#### 趋势巡航 http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html
 >>`龘龘囗`http://live.finance.sina.com.cn/bozhu/1658605145
 ### 沪深港通资金流向 http://data.eastmoney.com/hsgt/index.html
-融资融券 http://data.eastmoney.com/rzrq/
->新股申购与中签查询 http://data.eastmoney.com/xg/xg
->>期指持仓 http://data.eastmoney.com/IF/Data/Contract.html
+>融资融券 http://data.eastmoney.com/rzrq/
+>>新股申购与中签查询 http://data.eastmoney.com/xg/xg
+>>>期指持仓 http://data.eastmoney.com/IF/Data/Contract.html
 ### A50 https://cn.investing.com/indices/china-a50
 >比特币 https://cn.investing.com/currencies/btc-usd
 >>我的投资组合 https://cn.investing.com/portfolio/?portfolioID=YGcwZG48MG4zZDo0YDA

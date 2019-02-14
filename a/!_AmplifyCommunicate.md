@@ -1,9 +1,10 @@
+### 健康狗粮放心吃
+![](http://img.alicdn.com/imgextra/i1/27/O1CN01ctodfZ1C4PBpQrRjB_!!27-0-lubanu.jpg)
+---
 ### 巴基斯坦小哥同时用27把剪刀理发 神级操作堪比“剪刀手爱德华
 http://www.chinadaily.com.cn/interface/zaker/1142844/2018-12-04/cd_37349695.html
 ![](https://imgmini.eastday.com/pushimg/20181205/900x598_1543973948810413.jpeg)
 ![](https://fashion.chinadaily.com.cn/img/attachement/jpg/site1/20181204/448a5bd66a811d7024cf41.jpg)
----
-
 ---
 #### 猪吼猫
 ![](http://09imgmini.eastday.com/mobile/20181106/20181106105851_093d02ec03fb8090d6b552ffad51d1c6_4.jpeg)
