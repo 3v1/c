@@ -1,3 +1,16 @@
+## SliceVerson2.0
+### Details
+- 佐勒4.39
+![](https://img.alicdn.com/imgextra/i4/3418426074/TB2gztxfYsTMeJjy1zcXXXAgXXa_!!3418426074.jpg)
+- 玲珑格格4.23
+![](https://gdp.alicdn.com/imgextra/i4/654152350/TB2adVFbxuTBuNkHFNRXXc9qpXa_!!654152350.jpg)
+- 麦田4.125
+![](https://gdp.alicdn.com/imgextra/i2/1772995108/TB2VToFx_JYBeNjy1zeXXahzVXa_!!1772995108.jpg)
+- 魔片的故事4.125
+![](https://gdp.alicdn.com/imgextra/i4/2274227895/TB2jaSepS8YBeNkSnb4XXaevFXa_!!2274227895.jpg)
+- 蔻丝4.10
+![](https://gdp.alicdn.com/imgextra/i2/715355920/TB23e8oIACWBuNjy0FaXXXUlXXa_!!715355920.gif)
+---
 ### 订单
 - 大方片35x35拍11，超大片35x45拍39，大方门35x35拍11，超长片45x17拍12，长片35x17拍9，长门35x17拍9，挂衣杆拍2，卡扣拍57，卡托包拍3，磁扣拍34
 ---
