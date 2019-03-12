@@ -8,3 +8,10 @@ https://blog.csdn.net/wangzhenyang2/article/details/81606700
 ![](https://img-blog.csdn.net/20180812152927123)
 ![](https://img-blog.csdn.net/20180812153120166)
 ![](https://img-blog.csdn.net/20180812153237921)
+---
+### 智能家居（HOME KIT）：HOME ASSISTANT + HOME BRIDGE
+http://diywm.com/2018/05/06/zhi_neng_jia_ju_home_kithome_assistant_home_bridge/
+### 用户投稿】闲置Android手机变身Homeassistant家庭助理，HA,MQTT环境搭建篇-小白分享系列文章
+https://www.hachina.io/7656.html
+### 智能家居折腾记 篇二：Homeassistant在小米1手机上的安装过程
+https://post.smzdm.com/p/adwl608p/

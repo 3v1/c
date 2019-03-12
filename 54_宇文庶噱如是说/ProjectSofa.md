@@ -6,3 +6,6 @@ https://detail.tmall.com/item.htm?id=580594188693
 ###ARIS爱依瑞斯布艺沙发简约现代耐磨舒适超强透气厚座包沙发福森曼
 https://detail.tmall.com/item.htm?id=576494308657
 ![](https://img.alicdn.com/imgextra/i3/2587463881/TB2Hd_9Jr1YBuNjSszeXXablFXa_!!2587463881.jpg)
+### 沙发床可折叠客厅小户型多功能简约现代双人1.8米1.5推拉两用沙发
+https://item.taobao.com/item.htm?id=568798388432
+![](https://img.alicdn.com/imgextra/i4/2605205414/TB2_U72AA9WBuNjSspeXXaz5VXa_!!2605205414.jpg)
