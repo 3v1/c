@@ -1,3 +1,6 @@
+### Plus Size Flounce Lace Up Maxi High Slit Dress - 3xl
+![](https://gloimg.rglcdn.com/rosegal/pdm-product-pic/Clothing/2017/07/13/source-img/20170713175838_55711.jpg)
+---
 ### Plus Size Flowy Cover Up Wrap Dress - Xl
 ![](https://gloimg.rglcdn.com/rosegal/pdm-product-pic/Clothing/2017/05/27/source-img/20170527184412_21651.jpg)
 ![](https://gloimg.rglcdn.com/rosegal/pdm-product-pic/Clothing/2017/05/27/source-img/20170527184412_84098.jpg)

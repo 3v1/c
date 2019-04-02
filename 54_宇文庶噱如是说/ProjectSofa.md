@@ -1,3 +1,6 @@
+### 新款布艺沙发北欧客厅小户型沙发咖啡厅简约休闲双人沙发家具
+https://detail.tmall.com/item.htm?id=546023090432
+![](https://img.alicdn.com/imgextra/i4/2271837720/TB22k1wggxlpuFjy0FoXXa.lXXa_!!2271837720.jpg)
 ### 多功能沙发床1.8实木可折叠客厅小户型双人坐卧两用1.5米简约现代
 https://detail.tmall.com/item.htm?id=580594188693
 ![](https://img.alicdn.com/imgextra/i3/1969847690/O1CN01rCgNKc26g4DtDRD1U_!!1969847690.jpg)
