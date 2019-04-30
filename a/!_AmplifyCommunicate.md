@@ -1,4 +1,10 @@
-### 我不吃，我不喝，我要旅游。
+### 菊花宝座
+![](http://pic1.dwnews.net/20190430/5f40328f05ab5f56272f0411021fc233_w.jpg)
+---
+### 人民公仆
+![](http://i2.chinanews.com/simg/hd/2019/04/28/a68fdeb7bdf042d5b76c157da7fc0a33.jpg)
+---
+### 我不吃，我不喝，我要旅游
 ![](http://wx1.sinaimg.cn/mw690/48874cecgy1g282jdlle9j20fs0b2my9.jpg)
 ---
 ### 狂怒，同类相食，导致多人死亡
