@@ -1,3 +1,8 @@
+### Rosegal Plus Size Halter Keyhole Top and Asymmetric Skirt Set - 4x
+![](https://gloimg.rglcdn.com/rosegal/pdm-product-pic/Clothing/2019/04/04/source-img/20190404201911_77839.jpg)
+![](https://gloimg.rglcdn.com/rosegal/pdm-product-pic/Clothing/2019/04/04/source-img/20190404201911_47795.jpg)
+![](https://gloimg.rglcdn.com/rosegal/pdm-product-pic/Clothing/2019/04/04/source-img/20190404201911_50502.jpg)
+---
 ### Plus Size Flounce Lace Up Maxi High Slit Dress - 3xl
 ![](https://gloimg.rglcdn.com/rosegal/pdm-product-pic/Clothing/2017/07/13/source-img/20170713175838_55711.jpg)
 ---
