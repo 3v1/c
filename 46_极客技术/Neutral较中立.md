@@ -10,7 +10,7 @@
 #### 新世纪同款 http://2newcenturynet.blogspot.com
 #### Twitter https://twitter.com/
 ##### 1+新闻 https://www.oneplusnews.com
-##### WallTyper http://www.walltyper.com
+##### ~~WallTyper http://www.walltyper.com~~
 ---
 ### モービル
 https://ja.m.wikipedia.org/wiki/メインページ
