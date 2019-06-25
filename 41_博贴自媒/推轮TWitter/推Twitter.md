@@ -21,7 +21,7 @@
 <details>
 <summary>Collapse</summary>
 https://twitter.com/COOOTV/status/1143160743455416320
-<https://pbs.twimg.com/media/D91ShqyVAAA-pfO.png"  alt="极简大叔@COOOTV" />
+<img src="https://pbs.twimg.com/media/D91ShqyVAAA-pfO.png"  alt="极简大叔@COOOTV" />
 https://twitter.com/Suyutong/status/1142060580448165889
 <img src="https://pbs.twimg.com/media/D9lqCpUW4AEDaxU.jpg"  alt="Suyutong@Suyutong" />
 </details>
