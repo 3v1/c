@@ -1,3 +1,5 @@
+![](https://i1.wp.com/stmedia.startribune.com/images/ows_152590666988188.jpg)
+---
 ### 特朗普发飙了！美国将进入全国紧急状态，政治角斗空前激烈
 http://mini.eastday.com/a/190215083113672.html
 ![](http://00imgmini.eastday.com/mobile/20190215/20190215083113_bf03973549d35303ec0c6efd074b35b4_3.jpeg)
