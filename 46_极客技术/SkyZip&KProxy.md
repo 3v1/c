@@ -18,3 +18,6 @@ https://addons.mozilla.org/en-US/firefox/addon/kproxy-extension/
 ---
 ### ProxyAccess（include SkyZip & KProxy）
 https://software.sonicwall.com/applications/app/index.asp?ev=catd&catid=Proxy-Access
+---
+### 2019年最新5个免费安卓VPN推荐
+https://vpnsg.net/android-vpn-applications-recommended-in-2019-latest/
