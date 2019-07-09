@@ -1,3 +1,10 @@
+### foobar2000 v1.4.5
+https://www.foobar2000.org/download
+### flac-1.3.2-win.zip
+https://ftp.osuosl.org/pub/xiph/releases/flac
+### 7-Zip (2019-02-21
+https://www.7-zip.org/
+---
 ### ACGÂþÒôÉç`ý“ý“àí`
 http://www.acgjc.com/yy/101156.html
 - ½âÑ¹www.acgjc.com
