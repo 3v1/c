@@ -1,3 +1,5 @@
+![](https://i2.wp.com/indignatie.nl/wp-content/uploads/2019/06/iran_war_cartoon.jpg)
+---
 ![](https://i1.wp.com/stmedia.startribune.com/images/ows_152590666988188.jpg)
 ---
 ### 特朗普发飙了！美国将进入全国紧急状态，政治角斗空前激烈
