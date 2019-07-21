@@ -1,10 +1,7 @@
 ### 蛇蝎美人
 ![](http://www.marketingturkiye.com.tr/wp-content/uploads/2017/10/1222321753_09wddbw9.jpg)
 ---
-### 菊花宝座
-![](http://pic1.dwnews.net/20190430/5f40328f05ab5f56272f0411021fc233_w.jpg)
----
-### 人民公仆
+### 人民公仆石化
 ![](http://i2.chinanews.com/simg/hd/2019/04/28/a68fdeb7bdf042d5b76c157da7fc0a33.jpg)
 ---
 ### 我不吃，我不喝，我要旅游

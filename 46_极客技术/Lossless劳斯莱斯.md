@@ -17,5 +17,5 @@ https://gmgard.com/gm76121
 http://tieba.baidu.com/p/3476057827
 ---
 ### ~~MusicTools~~
-https://www.lanzous.com/b245307/
+https://www.lanzous.com/b723803
 ---
