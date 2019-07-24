@@ -1,4 +1,8 @@
 ### Mitsui流河@LoveKatsuragi
+- 长大了，我要自己跟自己打万智牌。
+- 爸爸妈妈可高兴了，给我爱吃的抗抑郁药。
+https://twitter.com/LoveKatsuragi/status/1152539284739461121
+---
 ![](https://pbs.twimg.com/profile_banners/4801382412/1527488469)
 - 说出你的愿望吧”
   - 让世界在我面前毁灭，然后请把我也毁灭掉”
