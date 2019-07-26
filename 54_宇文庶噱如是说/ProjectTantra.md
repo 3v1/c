@@ -1,5 +1,6 @@
 ### TantraChair
 ![](https://i.pinimg.com/originals/54/31/49/54314985b5eb0eb7bb4cff8b207669ff.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-004-600x400.jpg)
 ### Tantric Chair Dimensions
 http://ririmestica.com/tantric-chair-dimensions/
 ![](http://ririmestica.com/wp-content/uploads/2018/07/tantric-chair-dimensions-sofa-tantra-yang-love-home-design-app-game.jpg)
