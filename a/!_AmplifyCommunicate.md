@@ -1,3 +1,6 @@
+### 快翻过去，不能被发现。
+![](https://pbs.twimg.com/media/EAUnpP_UIAIHuO4?format=png)
+---
 #### 因为你看不到真相，所以心里就有了满满的感动。
 ![](https://pbs.twimg.com/media/EAN1TYNUwAA2bCo?format=jpg&name=900x900)
 ---
