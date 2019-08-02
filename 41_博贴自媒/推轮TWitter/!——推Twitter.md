@@ -1,6 +1,18 @@
 - 问：如果境外敌对势力与境内黑恶势力相互勾结，会产生什么样的严重后果？
   - 答：？？苏维埃？和？。
   - https://twitter.com/REsxj7/status/1122655543963738112
+---
+- 思想太少，可能失去做人的尊严。思想太多，可能失去做人的快乐。
+![](https://pbs.twimg.com/media/EA2mcLYVAAAqFGR?format=jpg)
+- Dayomoses@Dayo_Moses：小张：对付人类这个物种，你只要有期望，大体都是要失望的。我的方法是，把全人类先拉黑，遇到还不错的再慢慢放出来。
+https://twitter.com/Dayo_Moses/status/1157096645844070401
+---
+- 王大閒人.@Pobovich：这他妈？庆还是？殇啊，搁古代只有死皇上了才会这么干吧，妥妥的高级黑。
+https://twitter.com/Pobovich/status/1156562301995982854
+- 高伐林@GaoFali：孙立平？：我们几十年的错误就在于：既找错了敌人（美？），又交错了朋友（俄？斯）。迄今为止，我们失去的绝大多数领土，都在“朋友”（俄？斯）手里；而我们今天的成就，全靠“敌人”（美？）帮助。
+![](https://pbs.twimg.com/media/EA7MNAwVAAASakK?format=jpg)
+https://twitter.com/GaoFalin/status/1157084217651732481
+---
 - 网友：古天乐哭晕在厕所。
 - 你如果在百度上搜索“100所小学”，就会发现一个奇怪的事：香港人在给锅内的孩子建学校，
 - 钟锅在给菲州孩子建学校
@@ -14,6 +26,9 @@
 - Emir@Amir_Ataturk：我们究竟缴了多少税，花在这类东西上面？
 ![](https://pbs.twimg.com/media/D8dHxgsVsAIZ__0.jpg)
   - https://twitter.com/Amir_Ataturk/status/1136956409692561410
+---
+- 我经历过？？，我很后悔当年我捐过钱，推了一班学生去死。我很后悔，我后悔了25年。你们今年想要我们的学生做你们的挡箭牌，是我们受害，你们得益，拿光政治筹码。不要教坏我的学生，现在是你们在洗我们学生脑。
+https://twitter.com/qintinjijing/status/1156767973836595201
 ---
 - 三爪@sanzhao4：巨量的人群如摩西过红海一般，让路给救护车，香港人不是暴徒。
   - https://twitter.com/sanzhao4/status/1140264087936307200
