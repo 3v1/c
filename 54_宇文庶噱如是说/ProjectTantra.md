@@ -1,8 +1,31 @@
-### TantraChair
-![](https://i.pinimg.com/originals/54/31/49/54314985b5eb0eb7bb4cff8b207669ff.jpg)
-![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-004-600x400.jpg)
+## TantraChair
+### SM ELEGANCE divan tantra:a minimalist
+- https://www.divantantra.com/en/sm-elegance-tantric-chair
+- ![](https://www.divantantra.com/wp-content/uploads/2018/12/sm-elegance-medidad-ingles.png)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/sm-1000x.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/subheader-sm.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-004.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-003.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-002.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-001.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-005.jpg)
+---
+- 收纳凳76x38x38，桌73，椅78
+![](https://img.alicdn.com/imgextra/i3/1721411622/O1CN01g27mL01NqutWG6Wzk_!!1721411622.jpg)
+![](https://img.alicdn.com/imgextra/i2/1721411622/O1CN011NqusiBwgspId1r_!!1721411622.jpg)
+![](https://i.pinimg.com/originals/38/7d/2a/387d2a4c7e7b389e49bfd006eaec4dfd.png)
+![](http://followroom.com/wp-content/uploads/2019/04/tantra-chair-design-dimensions-lovely-tantra-chair-plans-of-tantra-chair-design-dimensions.jpg)
+![](http://cinnamora.com/wp-content/uploads/2018/05/tantric-chair-chairs-beautiful-tantra-chair-tantric-chair-malaysia.jpg)
+![](http://pubgthue.info/wp-content/uploads/2019/03/kama-sutra-chair-tantra-chair-couch-furniture-sofa-download-tantra-home-design-ideas-pictures.jpg)
+![](https://i.pinimg.com/originals/fc/81/34/fc81340b1d28f4bd88d40164e9d7a93f.jpg)
+---
+![](https://www.aprier.com/upload/2019/04/06/tantra-sofa-tantra-sofa-relax-chair-ebay-thesofa-tantra-chair-l-d431b48b26b8b2a6.jpg)
+![](https://www.matinibook.com/image/2019/06/04/ikea-furniture-tantra-chair-sofa-tantra-ikea-sofa-daily_9a5392fad6634ad6.jpg)
+![](http://cinnamora.com/wp-content/uploads/2018/05/tantric-chair-para-tantra-chair-sign-tantric-chair-malaysia.jpg)
+![](https://www.divantantra.com/wp-content/uploads/2018/12/SM-006.jpg)
+---
 ### Tantric Chair Dimensions
-http://ririmestica.com/tantric-chair-dimensions/
+>http://ririmestica.com/tantric-chair-dimensions/
 ![](http://ririmestica.com/wp-content/uploads/2018/07/tantric-chair-dimensions-sofa-tantra-yang-love-home-design-app-game.jpg)
 ![](http://ririmestica.com/wp-content/uploads/2018/07/tantric-chair-dimensions-image-result-for-tantra-chair-dimensions-comfortable-and-sexy-furniture-tantra-furniture-ideas-and-lawn-furniture-home-design-ideas-living-room.jpg)
 ![](http://ririmestica.com/wp-content/uploads/2018/07/tantric-chair-dimensions-image-result-for-tantra-chair-dimensions-comfortable-and-sexy-furniture-tantra-furniture-ideas-and-lawn-furniture-home-design-software-free-download.jpg)
@@ -12,9 +35,6 @@ http://ririmestica.com/tantric-chair-dimensions/
 ![](http://ririmestica.com/wp-content/uploads/2018/07/tantric-chair-dimensions-relax-couch-sofa-for-gaming-chair-foam-mattress-lounge-home-designer-suite-tutorial.jpg)
 ![](http://ririmestica.com/wp-content/uploads/2018/07/tantric-chair-dimensions-tantra-chair-dimensions-fresh-sofa-tantra-sofa-you-home-design-software.jpg)
 ---
-### TantricDivan
-https://www.divantantra.com/en/sm-elegance-tantric-chair
-![](https://www.divantantra.com/wp-content/uploads/2018/12/sm-1000x.jpg)
 ### Fancy Tantra Chair For Great Times - X150
 ![](http://www.globefurnish.com/media/catalog/product/cache/1/image/793x530/9d0d1e3f9842b44024e6273a632f715b/h/m/hmgn00547t_2.jpg)
 ![](http://www.globefurnish.com/media/catalog/product/cache/1/image/580x580/9d0d1e3f9842b44024e6273a632f715b/h/m/hmgn00547t_2.jpg)
