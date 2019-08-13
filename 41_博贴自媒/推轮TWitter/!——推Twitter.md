@@ -4,9 +4,6 @@
 ---
 - 思想太少，可能失去做人的尊严。思想太多，可能失去做人的快乐。
 ![](https://pbs.twimg.com/media/EA2mcLYVAAAqFGR?format=jpg)
-- 不要脸这事，如果干得好，叫心理素质过硬。
-![](https://pbs.twimg.com/media/EBwRiTDUwAApitz?format=jpg&name=medium)
----
 - Dayomoses@Dayo_Moses：小张：对付人类这个物种，你只要有期望，大体都是要失望的。我的方法是，把全人类先拉黑，遇到还不错的再慢慢放出来。
 https://twitter.com/Dayo_Moses/status/1157096645844070401
 ---
