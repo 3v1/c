@@ -13,6 +13,8 @@ https://doubibackup.com/wlqx27bd.html
 - www.free99999.com
 - 8080
 - dongtaiwang.com
+- 本地8100
+- 控制8101
 ---
 ### Agent3
 - 162.245.239.66
