@@ -10,7 +10,13 @@
 ---
 - 长大了，我要自己跟自己打万智牌。
 - 爸爸妈妈可高兴了，给我爱吃的抗抑郁药。
-https://twitter.com/LoveKatsuragi/status/1152539284739461121
+  - https://twitter.com/LoveKatsuragi/status/1152539284739461121
+---
+- 对于许多？？富裕阶层的子女来说，金钱是大风刮来的
+- 对于许多？？中产阶层的子女来说，金钱是大风刮来的
+- 对于许多？？贫穷阶层的子女来说，金钱是大风刮来的
+- 对于许多？？社会底层的子女来说，金钱是大风刮来的
+  - https://twitter.com/LoveKatsuragi/status/1162674164680945664
 ---
 ![](https://pbs.twimg.com/profile_banners/4801382412/1527488469)
 - 说出你的愿望吧”
