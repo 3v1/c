@@ -1,3 +1,6 @@
+### 米奇大法
+![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=4096x4096)
+---
 ### 手机成瘾
 ![](https://pbs.twimg.com/media/CyhCmIiVIAAp5xu?format=jpg)
 ---
