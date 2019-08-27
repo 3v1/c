@@ -8,6 +8,10 @@
 ### 日媒采访五毛党 美英媒体左倾严重 还是日本媒体清醒`龘龘囗`
 https://twitter.com/skyknowsit/status/1161350181029236736
 ---
+- 上帝@sdbywjr：道理是很难说服人的东西，能说服人的只有南墙。`龖龖囗`
+![](https://pbs.twimg.com/media/EC3TEVwXsAErJYP?format=jpg&name=900x900)
+  - https://twitter.com/sdbywjr/status/1165819969197760512
+---
 - 不要脸这事，如果干得好，叫心理素质过硬。
 ![](https://pbs.twimg.com/media/EBwRiTDUwAApitz?format=jpg&name=medium)
 ---
