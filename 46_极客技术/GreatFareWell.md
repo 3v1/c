@@ -1,6 +1,14 @@
 ## GreatFareWell甚防川
 ### ss免费账号
 https://github.com/Alvin9999/new-pac/wiki/ss免费账号
+---
+### Agent3
+- dongtaiwang.com
+---
+- 162.245.239.66：23456
+- 162.245.239.74：40902
+- 67.21.94.192：34781
+---
 ### BannedBookWiki
 https://github.com/bannedbook/fanqiang/wiki
 ---
@@ -21,8 +29,3 @@ https://doubibackup.com/wlqx27bd.html
 - dongtaiwang.com
 - 本地8100
 - 控制8101
----
-### Agent3
-- 162.245.239.66
-- 23456
-- dongtaiwang.com
