@@ -5,6 +5,11 @@
 - 思想太少，可能失去做人的尊严。思想太多，可能失去做人的快乐。
 ![](https://pbs.twimg.com/media/EA2mcLYVAAAqFGR?format=jpg)
 ---
+- 消滅了尖銳的批評聲，溫和的批評聲就變得刺耳了。
+- 消滅了溫和的批評聲，連沉默都變得居心叵測。
+- 當沉默也被消滅時，誇讚的不夠賣力就是一種犯罪。
+  - https://twitter.com/haOFei/status/1166517764946706433
+---
 ### 日媒采访五毛党 美英媒体左倾严重 还是日本媒体清醒`龘龘囗`
 https://twitter.com/skyknowsit/status/1161350181029236736
 ---
