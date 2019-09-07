@@ -3,6 +3,7 @@
 2. **多维**http://www.dwnews.com
 3. 路透社 https://cn.reuters.com
 0. 纽约时报 https://cn.nytimes.com
+0. 日经 http://cn.nikkei.com/
 4. *法广*http://cn.rfi.fr
 5. 博讯 https://www.boxun.com
 6. 美国之音 https://www.voachinese.com
