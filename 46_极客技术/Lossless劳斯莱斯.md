@@ -5,17 +5,21 @@ https://ftp.osuosl.org/pub/xiph/releases/flac
 ### 7-Zip (2019-02-21
 https://www.7-zip.org/
 ---
-### ACGÂşÒôÉç`ı“ı“àí`
+### ACGæ¼«éŸ³ç¤¾`é¾˜é¾˜å›—`
 http://www.acgjc.com/yy/101156.html
-- ½âÑ¹www.acgjc.com
+- è§£å‹www.acgjc.com
 ---
 ### 51Ape
 http://www.51ape.com/
-### ÉğÊ¿Ö®Í¥GMgard
+### ç»…å£«ä¹‹åº­GMgard
 https://gmgard.com/gm76121
-### ÎŞËğÒôÀÖ°É
+### æ— æŸéŸ³ä¹å§
 http://tieba.baidu.com/p/3476057827
+---
+### æœæ ¸éŸ³ä¹
+https://www.lanzous.com/b142162
+### æ— åéŸ³ä¹ï¼ˆåŸåºŸæŸ´éŸ³ä¹
+https://www.lanzous.com/b342910/
 ---
 ### ~~MusicTools~~
 https://www.lanzous.com/b723803
----
