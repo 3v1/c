@@ -1,0 +1,2 @@
+### Rapoo\RPTouch\T8
+- HKEY_LOCAL_MACHINE\SOFTWARE\WOW6432Node\Rapoo\RPTouch\T8
