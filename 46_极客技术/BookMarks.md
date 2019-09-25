@@ -79,3 +79,14 @@ https://workflowy.com/
 https://www.zhihu.com/question/20491194
 ### TiddlyWiki
 https://tiddlywiki.com/
+---
+---
+https://twitter.com/kazuo_G3_dayo/status/1175291012178006016
+https://pbs.twimg.com/media/EE948XGUUAAYV0Q?format=jpg&name=900x900
+### りんふぁ@新作完成しました
+https://twitter.com/linfa_lm/status/1175385044333948930
+https://twitter.com/minamo_rm/status/1168570125773000713
+https://pbs.twimg.com/media/EDeYUF7VUAAgo5h?format=jpg&name=large
+https://pbs.twimg.com/media/EFIgjTpUUAAF8jh?format=jpg&name=4096x4096
+https://pbs.twimg.com/media/EFJMqt1VAAAY-_Y?format=jpg&name=4096x4096
+https://pbs.twimg.com/media/EFJmh7LUwAEd1BQ?format=jpg&name=4096x4096

@@ -1,7 +1,8 @@
 ## GreatFareWell甚防川
 ### 翻墙订阅链接
-https://blog.dcyy.fun/2019/05/25/ssrurl/
-https://www.ssrtool.com/tool/free_ssr
+- https://fanqiang.network/en/free-ssr-accounts
+- https://blog.dcyy.fun/2019/05/25/ssrurl/
+- https://www.ssrtool.com/tool/free_ssr
 - https://www.s0srshare.com/
 - https://t.me/S0SRSUB
 ### ss免费账号
@@ -9,7 +10,6 @@ https://github.com/Alvin9999/new-pac/wiki/ss免费账号
 ---
 ### SSR
 https://github.com/shadowsocksr-backup/shadowsocksr-csharp/releases
-![](https://raw.githubusercontent.com/Alvin9999/PAC/master/ss/ssr4120.PNG)
 ---
 ### BannedBookWiki
 https://github.com/bannedbook/fanqiang/wiki
