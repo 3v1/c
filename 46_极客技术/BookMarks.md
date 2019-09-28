@@ -81,6 +81,12 @@ https://www.zhihu.com/question/20491194
 https://tiddlywiki.com/
 ---
 ---
+https://twitter.com/OathTurbine
+https://pbs.twimg.com/media/EFaXFQZU8AAOnDx?format=jpg&name=360x360
+https://zh.wikiquote.org/wiki/沈富雄
+https://pbs.twimg.com/media/EDalFcaXsAEsKx0?format=jpg&name=4096x4096
+https://pbs.twimg.com/media/EExwDfNXkAAZVRy?format=jpg&name=4096x4096
+https://pbs.twimg.com/media/EEdHjueWkAAvMlb?format=jpg&name=4096x4096
 https://twitter.com/kazuo_G3_dayo/status/1175291012178006016
 https://pbs.twimg.com/media/EE948XGUUAAYV0Q?format=jpg&name=900x900
 ### りんふぁ@新作完成しました
