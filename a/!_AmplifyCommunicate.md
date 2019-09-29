@@ -1,3 +1,7 @@
+#### 发烧了给老师请假，本想发“老师，我难受”，不小心发成
+![](http://i1.go2yd.com/image.php?url=0NJJRP9DHD)
+- 这就是你所说的科学小发明？
+---
 ### 米奇大法
 ![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=4096x4096)
 ---
