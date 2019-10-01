@@ -1,15 +1,15 @@
-#### 发烧了给老师请假，本想发“老师，我难受”，不小心发成
+##### 发烧了给老师请假，本想发“老师，我难受”，不小心发成`这就是你所说的科学小发明？`
 ![](http://i1.go2yd.com/image.php?url=0NJJRP9DHD)
-- 这就是你所说的科学小发明？
+- 旺仔，奔跑，救美
 ---
-### 米奇大法
+#### 米奇大法
 ![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=4096x4096)
 ---
-### 手机成瘾
+#### 手机成瘾
 ![](https://pbs.twimg.com/media/CyhCmIiVIAAp5xu?format=jpg)
 ---
 ### 快翻过去，不能被发现。
-![](https://pbs.twimg.com/media/EAUnpP_UIAIHuO4?format=png)
+![](https://pbs.twimg.com/media/DsRj5VHWsAAKdF4?format=jpg&name=large)
 ---
 ### 因为你看不到真相，所以心里就有了满满的感动。
 ![](https://pbs.twimg.com/media/EAN1TYNUwAA2bCo?format=jpg)
