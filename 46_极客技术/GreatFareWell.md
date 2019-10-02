@@ -1,7 +1,9 @@
 ## GreatFareWell甚防川
 ### 翻墙订阅链接
 - https://fanqiang.network/en/free-ssr-accounts
-- https://blog.dcyy.fun/2019/05/25/ssrurl/
+- https://blog.dcyy.fun/2019/05/25/ssrurl
+- https://t.me/s/SSRSUB
+- https://t.me/s/SSRlist
 - https://www.ssrtool.com/tool/free_ssr
 - https://www.s0srshare.com/
 - https://t.me/S0SRSUB
