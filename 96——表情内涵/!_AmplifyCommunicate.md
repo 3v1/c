@@ -1,4 +1,7 @@
-##### 发烧了给老师请假，本想发“老师，我难受”，不小心发成`这就是你所说的科学小发明？`
+##### 我爱学习，学习使我妈快乐。
+![](https://pbs.twimg.com/media/EF_4OGQUEAA3uyb?format=jpg&name=4096x4096)
+---
+###### 发烧了给老师请假，本想发“老师，我难受”，不小心发成`这就是你所说的科学小发明？`
 ![](http://i1.go2yd.com/image.php?url=0NJJRP9DHD)
 - 旺仔，奔跑，救美
 ---
@@ -9,7 +12,7 @@
 ![](https://pbs.twimg.com/media/CyhCmIiVIAAp5xu?format=jpg)
 ---
 ### 快翻过去，不能被发现。
-![](https://pbs.twimg.com/media/DsRj5VHWsAAKdF4?format=jpg&name=large)
+![](https://pbs.twimg.com/media/DsRj5VHWsAAKdF4?format=jpg&name=4096x4096)
 ---
 ### 因为你看不到真相，所以心里就有了满满的感动。
 ![](https://pbs.twimg.com/media/EAN1TYNUwAA2bCo?format=jpg)
@@ -21,7 +24,7 @@
 ![](https://pics6.baidu.com/feed/faedab64034f78f0cf9571acca7f2750b2191ca2.jpeg?token=aaa96f7c67be4196d1aec74b97c6d0cf)
 ---
 ### 胖虎坦克
-![](https://pbs.twimg.com/media/EAE4LfcU0AADsYn?format=jpg)
+![](https://pbs.twimg.com/media/EAE4LfcU0AADsYn?format=jpg&name=4096x4096)
 ---
 ### 蛇蝎美人
 ![](http://www.marketingturkiye.com.tr/wp-content/uploads/2017/10/1222321753_09wddbw9.jpg)

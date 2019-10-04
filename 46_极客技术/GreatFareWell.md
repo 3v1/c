@@ -1,4 +1,7 @@
-## GreatFareWell甚防川
+### GreatFareWell甚防川
+#### AutoSSR: FREE ShadowsocksR
+https://voken.io/en/latest/services/autossr.html
+---
 ### 翻墙订阅链接
 - https://fanqiang.network/en/free-ssr-accounts
 - https://blog.dcyy.fun/2019/05/25/ssrurl
@@ -7,6 +10,10 @@
 - https://www.ssrtool.com/tool/free_ssr
 - https://www.s0srshare.com/
 - https://t.me/S0SRSUB
+#### 免费V账号免费S账号
+https://free-ss.site
+#### ？？？公益
+- https://fanqiangdang.com/forum-2-1.html
 ### ss免费账号
 https://github.com/Alvin9999/new-pac/wiki/ss免费账号
 ---
