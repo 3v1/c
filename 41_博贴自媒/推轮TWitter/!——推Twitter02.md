@@ -1,3 +1,6 @@
+- 我支持？？大？封杀NBA，不是因为我支持？？也不是因为我讨厌NBA，是封杀了之后，全世界都能欣赏到因为一个人说了一句话，一个泱泱大？的？？就和怨妇一样狂怼，然后NBA就从一个？？彻底被消失的超魔幻现实主义剧情
+  - https://twitter.com/Owner_Of_China/status/1181133567885070336
+---
 - Priscilla@Priscirra：约炮爱锅号，微信皿主群。战忽海外局，帝吧外联部。
   - https://twitter.com/Priscirra/status/1174519079786307584
 ---
