@@ -1,3 +1,6 @@
+#### 愿化身为光，驱散世间阴霾。
+![](https://i0.hdslb.com/bfs/sycp/creative_img/201910/beec2ff5d72791b84ff45b8c177fa808.jpg)
+---
 ##### 我爱学习，学习使我妈快乐。
 ![](https://pbs.twimg.com/media/EF_4OGQUEAA3uyb?format=jpg&name=4096x4096)
 ---
