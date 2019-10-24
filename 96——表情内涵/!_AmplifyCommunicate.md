@@ -1,3 +1,12 @@
+####
+![]()
+---
+#### 猪屁股碎了
+![](https://pbs.twimg.com/ad_img/1183867232784388096/BrhoHn_A?format=jpg&name=4096x4096)
+---
+#### 别哭了`アボガド6@avogado6：もう泣かないように`
+![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=4096x4096)
+---
 #### 愿化身为光，驱散世间阴霾。
 ![](https://i0.hdslb.com/bfs/sycp/creative_img/201910/beec2ff5d72791b84ff45b8c177fa808.jpg)
 ---
