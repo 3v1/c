@@ -2,6 +2,33 @@
 https://twitter.com/RealWilliamMa00
 - 1个男人2个头 - 1头7磅重,1头8寸长 - 1头思索爱,1头探索爱
 ---
+- 蒙古国,屹立收礼—？？送钱,俄国送笑,美日送器,全民福利,民主宪政,内？蒙族特权
+  - https://twitter.com/RealWilliamMa00/status/1186696461397811206
+- 我的心中,敬畏在心,我只会向手无缚鸡之力的女子和孩子单膝下跪,永远不跪天神
+  - https://twitter.com/RealWilliamMa00/status/1187594293759766528
+---
+- 没有爹活不了。宗教奴隶，也是奴隶。
+  - https://twitter.com/RealWilliamMa00/status/1187590769860698112
+---
+- 伊朗军人主动绑上炸弹自杀炸毁敌军坦克，伊朗民众冲向雷区扫雷。伊朗政教合一,但民众无数自由权,有互联网—统治阶级妥协血性
+  - https://twitter.com/RealWilliamMa00/status/1187566942753718278
+---
+- 人类—靠自己,不靠爹。牲口—靠主人,才拼爹
+  - https://twitter.com/RealWilliamMa00/status/1187506182472159233
+---
+- 世界正在倒退,人们越来越不能/敢说话—政治正确,1970年代生物基因学家还敢发表人种基因科学论文
+  - https://twitter.com/RealWilliamMa00/status/1187017875791343617
+- 美国英文媒体几乎都是《？？日报》,政治正确下胡言乱语,担心下一代美国人和？？人一样愚蠢和无知.虽然,美国中学有”Media Bias”反洗脑与Critical Thinking,但人们如履薄冰,尤其涉种族
+  - https://twitter.com/RealWilliamMa00/status/1187028230957453313
+- 政治正确,扼杀言论自由。不敢真话=人种退化
+  - https://twitter.com/RealWilliamMa00/status/1187024980522852352
+- 没有言论自由—社会死亡
+  - https://twitter.com/RealWilliamMa00/status/1187021575586861058
+---
+- 不同派系斗争,失势的开始出来”反体制
+- 缺乏Critical thinking,彻底脑残!
+  - https://twitter.com/RealWilliamMa00/status/1186942790418063361
+---
 - ？？？先生,很高明!不要小看他,真正的狠角!学历—不等于智商和能力。
 - ？？？先生,他不会迫害基督教!但是,他的？内政敌会利用基督教栽赃给他.别忘了,”打狗看主人”,基督教的主人—英法
   - https://twitter.com/RealWilliamMa00/status/1184463121202573312
@@ -23,3 +50,4 @@ https://twitter.com/RealWilliamMa00
 不知比民主、法治、反？重要多少。一个连人类最伟大性爱都只敢偷偷摸摸性交的民族，他们怎会拥有信仰？
 - 没有性意，只有牲意。牲口社会，只有性交，没有性爱。只有牲意，没有民意。
   - https://twitter.com/RealWilliamMa00/status/1177104944471502849
+![](https://pbs.twimg.com/media/EHrrqrxVUAAqjEo.jpg:orig)
