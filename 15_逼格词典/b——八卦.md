@@ -15,3 +15,15 @@
 ![](https://upload.wikimedia.org/wikipedia/commons/b/b7/Xiantianbagua.png)
 - 八卦符号通常与太极图搭配出现，代表中国传统信仰（儒，道）的终极真理：“道
 - 五行与后天八卦提出如下对应关系：震（雷）、巽（风）为木，离为火（日），坤（地）、艮（山）为土，兑（泽）、乾（天）为金，坎为水（月
+---
+####
+　|八卦类象|卦类象详解大全
+---|---|---
+1|乾☰天|http://www.guoyi360.com/bg/bglx/376.html
+2|兑☱泽|http://www.guoyi360.com/bg/bglx/377.html
+3|离☲火|http://www.guoyi360.com/bg/bglx/378.html
+4|震☳雷|http://www.guoyi360.com/bg/bglx/379.html
+5|巽☴风|http://www.guoyi360.com/bg/bglx/380.html
+6|坎☵水|http://www.guoyi360.com/bg/bglx/381.html
+7|艮☶山|http://www.guoyi360.com/bg/bglx/382.html
+8|坤☷地|http://www.guoyi360.com/bg/bglx/383.html
