@@ -1,6 +1,14 @@
 ####
 ![]()
 ---
+#### yotm猴子抱拳
+![](http://static.skaip.su/img/emoticons/180x180/f6fcff/yotm.gif)
+---
+#### 猴子
+![](https://i0.hdslb.com/bfs/article/9e65045fd9249d4554884e8422c4944a6b889a87.jpg)
+---
+#### 弹压
+![](https://pbs.twimg.com/media/EJQPRxJUYAEfYEH?format=jpg&name=orig)
 #### zg墙，排h
 ![](https://pbs.twimg.com/media/EI6TXzpVUAEsoAM.jpg:orig)
 ---
@@ -8,29 +16,29 @@
 ![](https://wx2.sinaimg.cn/mw1024/48874cecgy1g8kpccu0hzj23402c0kjl.jpg)
 ---
 #### 猪屁股碎了
-![](https://pbs.twimg.com/ad_img/1183867232784388096/BrhoHn_A?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/ad_img/1183867232784388096/BrhoHn_A?format=jpg&name=orig)
 ---
 #### 别哭了`アボガド6@avogado6：もう泣かないように`
-![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=orig)
 ---
 #### 愿化身为光，驱散世间阴霾。
 ![](https://i0.hdslb.com/bfs/sycp/creative_img/201910/beec2ff5d72791b84ff45b8c177fa808.jpg)
 ---
 ##### 我爱学习，学习使我妈快乐。
-![](https://pbs.twimg.com/media/EF_4OGQUEAA3uyb?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/EF_4OGQUEAA3uyb?format=jpg&name=orig)
 ---
 ###### 发烧了给老师请假，本想发“老师，我难受”，不小心发成`这就是你所说的科学小发明？`
 ![](http://i1.go2yd.com/image.php?url=0NJJRP9DHD)
 - 旺仔，奔跑，救美
 ---
 #### 米奇大法
-![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/ECgi5CxXUAE-njq?format=jpg&name=orig)
 ---
 #### 手机成瘾
 ![](https://pbs.twimg.com/media/CyhCmIiVIAAp5xu?format=jpg)
 ---
 ### 快翻过去，不能被发现。
-![](https://pbs.twimg.com/media/DsRj5VHWsAAKdF4?format=jpg&name=4096x4096)
+![](https://pbs.twimg.com/media/DsRj5VHWsAAKdF4?format=jpg&name=orig)
 ---
 ### 因为你看不到真相，所以心里就有了满满的感动。
 ![](https://pbs.twimg.com/media/EAN1TYNUwAA2bCo?format=jpg)
