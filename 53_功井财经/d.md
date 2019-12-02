@@ -1,7 +1,8 @@
 1. <u>**徐小明**</u>http://blog.sina.com.cn/s/articlelist_1300871220_0_1.html `龘龘囗`
 0. - http://live.finance.sina.com.cn/bozhu/1300871220
 0. **<u>Wu2198</u>** http://blog.sina.com.cn/s/articlelist_1216826604_0_1.html `龘龘囗`
-0. - http://weibo.com/wu2198
+0. - https://weibo.com/wu2198?is_all=1
+0. 天津股侠 https://weibo.com/318561999?from=myfollow_all
 0. <u>**冯矿伟</u>** http://blog.sina.com.cn/s/articlelist_1504965870_0_1.html `龘龘囗`
 0. - http://live.finance.sina.com.cn/bozhu/1504965870
 0. **<u>趋势巡航**</u> http://blog.sina.com.cn/s/articlelist_1658605145_0_1.html `龘囗囗`
