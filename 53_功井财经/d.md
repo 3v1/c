@@ -18,6 +18,10 @@
 0. <u>Anmin0001</u>http://blog.sina.com.cn/s/articlelist_1253386310_0_1.html `龘囗囗`
 0. Wu2198直播http://live.finance.sina.com.cn/bozhu/1216826604
 ---
+### 股票账户统计一览（月
+http://data.eastmoney.com/cjsj/gpkhsj.html
+### 中国 采购经理人指数（PMI
+http://data.eastmoney.com/cjsj/pmi.html
 ### 限售股解禁一览
 http://data.eastmoney.com/dxf/
 ### 名家多空PK台
