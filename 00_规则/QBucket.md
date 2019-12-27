@@ -29,3 +29,6 @@ https://www.excite.co.jp/world/jiantizi/
 ---
 ### 系统之家
 https://www.xp510.com
+#### 在线网址链接批量生成器
+http://tools.jb51.net/aideddesign/ljscq
+![](http://tools.jb51.net/images/ljscq.png)
