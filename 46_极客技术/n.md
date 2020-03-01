@@ -14,7 +14,18 @@
 11. Twitter https://twitter.com/
 12. ~~1+新闻https://www.oneplusnews.com~~
 13. ~~WallTyper http://www.walltyper.com~~
----
+
+#### stone记
+https://www.youtube.com/channel/UCghLs6s95LrBWOdlZUCH4qw
+#### 王局志安
+@wangzhian8848
+https://twitter.com/wangzhian8848
+#### 陈秋实（陳秋實）
+@chenqiushi404
+https://twitter.com/chenqiushi404
+#### 陈秋实
+https://www.youtube.com/channel/UCv361SF6FKznoGPKEFG9Yhw
+
 14. モービル
 https://ja.m.wikipedia.org/wiki/メインページ
 15. 日本語
